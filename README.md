@@ -39,7 +39,7 @@ Coming soon via GitHub Pages...
 
 **Anushka Chandra**  
 Frontend Developer  
-💼 [LinkedIn](https://linkedin.com/in/anushka-chandra)
+💼 [LinkedIn](https://linkedin.com/in/anushka-chandra-05a062343/
 
 ---
 
